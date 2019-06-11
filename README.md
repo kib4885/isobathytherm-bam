@@ -3,6 +3,12 @@
 
 ## **LINK TO APP VIDEO**
 
+### **Bamazon Customer View**
+https://drive.google.com/file/d/187usLtKTepo4arne6xc5LXmk3Bky1aFz/view
+
+### **Bamazon Manager View**
+https://drive.google.com/file/d/1biPLzkMErBl6ixWXjDSeMdCdjsAoLF44/view
+
 
 
 ## **OVERVIEW**
